@@ -6,4 +6,4 @@
 
 🥅 2024 Goals:Pro Hacker 
 
-⚡ Fun fact: Kali & Kali Linux are not same, but both belives in Offencive Security.
+⚡ Fun fact: Devil & Kali Linux are not same, but both belives in Offencive Security.
